@@ -4,4 +4,4 @@ Brands are increasingly using video content to connect with their audience, esta
 <h3>Why "Local" Isn't Just a Catchphrase</h3>
 Delhi is more than just a place. It combines hustle, modernity, diversity, and heritage. Corporate videos that incorporate these components tell a story that is both visually striking and culturally grounded, rather than merely showcasing a company.<br>
 Local filmmakers contribute a profound understanding of Delhi's geography, audience sensibilities, and aesthetics, whether they are documenting a business event at the India Habitat Centre, a brand story in the busy lanes of Chandni Chowk, or a chic office shoot in Gurugram.<br>
-<h3>The Influence of <a href"https://www.smokestudioz.com/services" title="Commercial Photography and Videography" alt"Commercial Photography and Videography" >Commercial Filmmaking and Photography</a></h3>
+<h3>The Influence of Commercial Filmmaking and Photography</h3>
